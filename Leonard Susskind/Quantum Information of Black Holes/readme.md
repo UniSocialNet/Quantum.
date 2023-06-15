@@ -1,0 +1,1 @@
+- [Can a New Law of Physics Explain a Black Hole Paradox?](https://youtu.be/yLOHdW7dLug)
